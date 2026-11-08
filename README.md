@@ -1,4 +1,4 @@
-# Hi, I'm Nurullah 👋
+# Hi, I'm Nurullah 
 
 Management Information Systems student at Aydın Adnan Menderes University (4th year).
 
